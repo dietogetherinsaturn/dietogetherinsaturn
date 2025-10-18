@@ -1,4 +1,6 @@
-## Hi there 👋
+## i love natalia dyer omg
+
+![natalia dyer](https://github.com/dietogetherinsaturn/dietogetherinsaturn/blob/main/natalia%20dyer.jpeg?raw=true)
 
 <!--
 **dietogetherinsaturn/dietogetherinsaturn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
