@@ -1,6 +1,6 @@
 ## i love natalia dyer omg
 
-![natalia dyer](https://github.com/dietogetherinsaturn/dietogetherinsaturn/blob/main/natalia%20dyer.jpeg?raw=true)
+![natalia dyer](https://github.com/dietogetherinsaturn/dietogetherinsaturn/blob/main/natalia%202.jpg?raw=true)
 
 [ata book](https://gabe.atabook.org/)
 
