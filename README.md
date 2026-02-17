@@ -6,6 +6,7 @@
 
 [ata book](https://gabe.atabook.org/)
 [color my tree!!!](https://colormytree.me/2025/01KBW1MBRN4NN9KQNAYWJ2AWFZ)
+[feed my tamanotchi!!!](https://tamanotchi.world/u/19153)
 <!--
 **dietogetherinsaturn/dietogetherinsaturn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
